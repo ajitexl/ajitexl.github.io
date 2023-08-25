@@ -1,1 +1,0 @@
-# ajitexl.github.io
